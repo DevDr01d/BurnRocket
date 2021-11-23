@@ -1,0 +1,2 @@
+# BurnRocket
+BurnRocket is a blockchain gaming ecosystem &amp; metaverse where anyone can earn tokens through skilled gameplay. What could be better than making money by playing an interesting &amp; fun game?  Based on the concept of Play &amp; Earn, players will be able to collect $BurnRocket tokens and buy exclusive in-game features and NFTs on Burnrocket NFT Marketplace. The first game "Burnrocket Invaders" is already available in Alpha version, more levels and more games incoming!
